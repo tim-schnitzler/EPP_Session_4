@@ -1,6 +1,6 @@
  # Introduction to the love story
 
-Tristan and Isolde got to know each other trough Kevin
+Tristan and Isolde got to know each other through Kevin
 
 # Tristan and Isolde
 
