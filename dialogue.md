@@ -50,3 +50,7 @@ Tristan: Woe is me indeed! She hath never loved me.
 *The music swells as TRISTAN crawls over to ISOLDE's dead body, pulls out DON GIOVANNI's sword, and impales himself.*
 
 *Il Commendatore all of a sudden stops singing and drops into normal speech*
+
+# The end
+
+Tristan and Isolde are dead.
