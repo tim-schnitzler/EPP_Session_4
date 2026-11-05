@@ -6,4 +6,6 @@ Isolde: Thank you, Trsitan. Shall we walk by the sea?
 
 Tristan: Yes, the sea is quiet this evening.
 
-Isolde: Then let us leave our worries here.
+Isolde: Then us leave our worries here.
+
+Kevin: Ganz genau
