@@ -1,3 +1,7 @@
+ # Introduction to the love story
+
+Tristan and Isolde got to know each other trough Kevin
+
 # Tristan and Isolde
 
 Tristan: I brought you a flower from the garden.
