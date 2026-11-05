@@ -4,10 +4,13 @@ Tristan: I brought you a flower from the garden.
 
 Isolde: Thank you, Trsitan. Shall we walk by the sea?
 
-Tristan: Yes, the sea is quiet this evening.
+Tristan: My name is Tristan, not Trsitan.
 
 Isolde: Then let us leave our worries here.
 
+Tristan: No, I'm not quite over the fact that you got my name wrong.
+
+*Enter FIGARO, riding a donkey in a Christ-like fashion, and singing.*
 Figaro: Make way for the barber of the city, make way! La la la la la la la la la LA!
 All the young maidens gather 'round my shop, hooray! La la la la la la la la la LA!
 Ah, what a beautiful life, what delightful pleasure, what delightful pleasure...
@@ -23,3 +26,4 @@ Isolde: I never loved you anyways. I always thought Siegfried was hotter.
 Il Commendatore: Repent!
 
 Don Giovanni: No!
+
