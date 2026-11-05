@@ -27,3 +27,18 @@ Il Commendatore: Repent!
 
 Don Giovanni: No!
 
+*DON GIOVANNI slashes around with his sword as IL COMMENDATORE menacingly walks towards him.*
+
+*His sword flies out of his hand and spears ISOLDE. As she lies dying, she begins to sing.*
+
+Isolde: Oh, woe is me. Siegfried, I am on my way to join thee in Valhalla
+
+Figaro: Rest easy, brother. We have the watch. See you in Valhalla.
+
+*As ISOLDE exhales her last breath, TRISTAN suddenly collapses*
+
+Tristan: Woe is me indeed! She hath never loved me.
+
+*The music swells as TRISTAN crawls over to ISOLDE's dead body, pulls out DON GIOVANNI's sword, and impales himself.*
+
+*Il Commendatore all of a sudden stops singing and drops into normal speech*
