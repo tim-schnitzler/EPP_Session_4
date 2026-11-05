@@ -6,6 +6,10 @@ Isolde: Thank you, Trsitan. Shall we walk by the sea?
 
 Tristan: My name is Tristan, not Trsitan.
 
+Isolde: Then us leave our worries here.
+
+Kevin: Ganz genau
+
 Isolde: Then let us leave our worries here.
 
 Tristan: No, I'm not quite over the fact that you got my name wrong.
